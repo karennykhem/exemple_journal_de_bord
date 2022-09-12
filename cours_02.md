@@ -12,3 +12,4 @@ J'aime le fait que c'est encore une situation renversée, ken est triste et barb
 
 ### [Amethyst](https://i.pinimg.com/originals/33/c1/2e/33c12eb4b8afd9ed9b229e6239ef4827.jpg)
 Alors, Amethyst est une fille du site Trollz avatar que j'aimais quand j'étais jeune. J'aime le style de lignes et les détails et le concept de l'oeuvre. J'aime les couleurs mauves et noires qui font partie de l'oeuvre et c'est une bonne décision d'exagéré le coté punk de la créature troll tendance qui fait partie de le choix stylistique que l'artiste devait faire. Elle est fashion et tendance et belle. Elle est cool et stylée. 
+
